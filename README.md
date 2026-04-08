@@ -1,2 +1,2 @@
-Eduardo Rene Cubias Moran.
+Eduardo Rene Cubias Moran
 -------------------------
